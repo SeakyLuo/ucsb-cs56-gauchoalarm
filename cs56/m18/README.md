@@ -2,9 +2,9 @@
 
 Yingchao, Kevin, Zheren, Seaky, Shiheng, Zhiqin
 
-# Aggrements:
+# Agreements:
 
 1. Help each other
 2. Respect privacy
 3. Organize ourselves
-4. Everyone particiates
+4. Everyone participates
